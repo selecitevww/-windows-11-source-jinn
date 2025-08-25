@@ -6,3 +6,4 @@ FASTER DOWNLOADER SNAPSHOT
 
 
 FOR TESTING SPEED INTERNET!
+https://github.com/selecitevww/-windows-11-source-jinn/blob/main/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD/win11x643_2.7z.001
